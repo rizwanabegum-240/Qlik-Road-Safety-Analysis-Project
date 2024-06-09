@@ -6,5 +6,4 @@ https://drive.google.com/drive/folders/18mFFf4VrZw-e3-GjmYn9Vav54-ydE7tx?usp=sha
 https://drive.google.com/drive/folders/16WYrI_J7sK4sxdCVfN5Lj_NbzwPJ_FTS?usp=sharing
 
 ## Demo Video link:
-https://drive.google.com/file/d/1uuCh_P9_HLpVJzLu-nE_ShTd99uimtoC/view?usp=sharing
-
+https://drive.google.com/file/d/1ilQ79zZRsxG6j_VUQuFNqVug7t4SD5ji/view?usp=sharing
